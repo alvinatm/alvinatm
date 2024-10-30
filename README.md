@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @alvinatm
-- 👀 I’m interested in . everything..
-- 🌱 I’m currently learning on of everything ...
+- 👀 I’m interested in . anything..
+- 🌱 I’m currently learning  everything ...
 - 💞️ I’m looking to collaborate on . anything..
 - 📫 How to reach me ..( e-mail (Alvinatm77@gmail.com)
 - ⚡ Fun fact: ...in Action 
